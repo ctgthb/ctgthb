@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ctgthb
+- 👀 I’m interested in cybersecurity and AI
+- 🌱 I’m currently learning python
+- 💞️ I’m looking forward to collaborate on different friendly and cooperative environments)
+- 📫 How to reach me (pls leave comments on my page for messaging)
